@@ -2,6 +2,8 @@
 
 For the record, my awakening has nothing to do with the competition...
 
+Although I personally have participated in chemistry competitions, astronomy competitions, technological innovation competitions, oi and some weird competitions....
+
 However, directly or after these two transitions, there is a long period of gender dysphoria. People who have faced depression or anxiety probably know that, if you just don’t think about this kind of thing and fill up your time, there is generally no way to relieve it. To practice, this is better than not knowing what to do, and it is much more uncomfortable. Moreover, I can't bear the anxiety to such an extent that after the first turning point, many dreams and many fantasies made me usher in the second turning point.
 
 On June 16, 2022, I made the decision to start all this and not look back, and I bought some medicines from friends I knew and bought others from Meituan. Then, everything starts. Once it starts, don't look back, and you will lose the room to turn back. Basically, it didn't take long for the mentality to change. As for the physical changes, it was the same as before. The chest was sore, and the lower abdomen had a certain degree of pain. After that, it was confirmed that the upper bust had increased significantly and the skin It got better, and the hair quality has also changed. Although the body hair has not decreased, it has indeed become thinner (visible to the naked eye), and the face seems to have become fatter...?
